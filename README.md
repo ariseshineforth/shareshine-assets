@@ -1,0 +1,1 @@
+# shareshine-assets
